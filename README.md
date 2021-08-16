@@ -1,1 +1,1 @@
-# wikiday
+![Le Juif polonais](http://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg/300px-Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg)
