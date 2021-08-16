@@ -33,6 +33,7 @@ jobs:
         run: |
           git config --global user.email "hackshen.com@gmail.com"
           git config --global user.name "hackshen"
+          git add -u
           git commit -m "Update"
       - name: Push changes
         uses: ad-m/github-push-action@master
