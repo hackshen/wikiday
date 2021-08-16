@@ -13,7 +13,7 @@ https.get(URL, function (res) {
     res.on('end', function () {
         const data = Buffer.concat(chunks, size);
         const html = data.toString();
-        const $ = cheerio.load(h);
+        const $ = cheerio.load(html);
         console.log(html)
         const imgUrl = $('img')[0].attribs.src;
         fs.writeFile('./README.md', `![Le Juif polonais](https:${imgUrl})`, e => {
