@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg/300px-Henri_C._R._Presseq_-_Camille_Erlanger_-_Le_juif_polonais.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2d/Panther_chameleon_%28Furcifer_pardalis%29_male_Nosy_Be.jpg/400px-Panther_chameleon_%28Furcifer_pardalis%29_male_Nosy_Be.jpg)
