@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/71/Black-headed_weaver_%28Ploceus_cucullatus_bohndorffi%29_male_nest_building.jpg/400px-Black-headed_weaver_%28Ploceus_cucullatus_bohndorffi%29_male_nest_building.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/F-117_Nighthawk_Front.jpg/350px-F-117_Nighthawk_Front.jpg)
