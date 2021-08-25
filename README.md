@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/F-117_Nighthawk_Front.jpg/350px-F-117_Nighthawk_Front.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Argiope_July_2012-3.jpg/300px-Argiope_July_2012-3.jpg)
