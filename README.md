@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e2/Argiope_July_2012-3.jpg/300px-Argiope_July_2012-3.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/Henri_Motte_-_La_fianc%C3%A9e_de_B%C3%A9lus_%281885%29.jpg/200px-Henri_Motte_-_La_fianc%C3%A9e_de_B%C3%A9lus_%281885%29.jpg)
