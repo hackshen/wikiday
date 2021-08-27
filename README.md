@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/Henri_Motte_-_La_fianc%C3%A9e_de_B%C3%A9lus_%281885%29.jpg/200px-Henri_Motte_-_La_fianc%C3%A9e_de_B%C3%A9lus_%281885%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Canary_Wharf_from_Limehouse_London_June_2016_HDR.jpg/400px-Canary_Wharf_from_Limehouse_London_June_2016_HDR.jpg)
