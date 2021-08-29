@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/%C3%89mile_Bayard_-_Beaumarchais_-_B%C3%A9g%C3%A9arss_in_La_m%C3%A8re_coupable%2C_1876.jpg/300px-%C3%89mile_Bayard_-_Beaumarchais_-_B%C3%A9g%C3%A9arss_in_La_m%C3%A8re_coupable%2C_1876.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/07/Thalassarche_impavida_2_-_SE_Tasmania.jpg/400px-Thalassarche_impavida_2_-_SE_Tasmania.jpg)
