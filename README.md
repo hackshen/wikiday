@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/07/Thalassarche_impavida_2_-_SE_Tasmania.jpg/400px-Thalassarche_impavida_2_-_SE_Tasmania.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Averbode_Abdijkerk_R06.jpg/500px-Averbode_Abdijkerk_R06.jpg)
