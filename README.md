@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Averbode_Abdijkerk_R06.jpg/500px-Averbode_Abdijkerk_R06.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Albury_railway_station%2C_Australia.jpg/500px-Albury_railway_station%2C_Australia.jpg)
