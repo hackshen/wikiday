@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Pieris_brassicae_%28caterpillar%29.jpg/400px-Pieris_brassicae_%28caterpillar%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Liliuokalani%2C_c._1891.jpg/350px-Liliuokalani%2C_c._1891.jpg)
