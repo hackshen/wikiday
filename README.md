@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Novel_Coronavirus_SARS-CoV-2.jpg/400px-Novel_Coronavirus_SARS-CoV-2.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Mrs._Pauline_Adams_147002v.jpg/300px-Mrs._Pauline_Adams_147002v.jpg)
