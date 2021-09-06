@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/61/Mrs._Pauline_Adams_147002v.jpg/300px-Mrs._Pauline_Adams_147002v.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Zoothera_citrina_-_Khao_Yai.jpg/350px-Zoothera_citrina_-_Khao_Yai.jpg)
