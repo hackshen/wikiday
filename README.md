@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Zoothera_citrina_-_Khao_Yai.jpg/350px-Zoothera_citrina_-_Khao_Yai.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg/300px-Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)
