@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg/300px-Marie-Gabrielle_Capet_-_Self-Portrait_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg/300px-COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg)
