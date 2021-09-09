@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg/300px-COBB%2C_Howell-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg/400px-%C4%80l%C4%AB_Q%C4%81p%C5%AB_in_golden_time.jpg)
