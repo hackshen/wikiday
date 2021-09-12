@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Papilio_polymnestor-Kadavoor-2016-07-27-002.jpg/400px-Papilio_polymnestor-Kadavoor-2016-07-27-002.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg/350px-Paper_cut-out_with_The_Lord%27s_Prayer_MET_DP372401.jpg)
