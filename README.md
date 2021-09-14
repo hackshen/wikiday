@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/THOMAS%2C_Philip_F-Treasury_%28BEP_engraved_portrait%29.jpg/300px-THOMAS%2C_Philip_F-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/80/Internal_reflection%2C_Anna.jpg/350px-Internal_reflection%2C_Anna.jpg)
