@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/80/Internal_reflection%2C_Anna.jpg/350px-Internal_reflection%2C_Anna.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Red-backed_shrike.jpg/400px-Red-backed_shrike.jpg)
