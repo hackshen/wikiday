@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Red-backed_shrike.jpg/400px-Red-backed_shrike.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/CUB-53a-El_Banco_Espanol_de_la_Isla_de_Cuba-20_Centavos_%281897%29-single_crop.jpg/350px-CUB-53a-El_Banco_Espanol_de_la_Isla_de_Cuba-20_Centavos_%281897%29-single_crop.jpg)
