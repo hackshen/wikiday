@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/CUB-53a-El_Banco_Espanol_de_la_Isla_de_Cuba-20_Centavos_%281897%29-single_crop.jpg/350px-CUB-53a-El_Banco_Espanol_de_la_Isla_de_Cuba-20_Centavos_%281897%29-single_crop.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/34/Alpine_House%2C_Kew_Gardens%2C_2018_edit.jpg/350px-Alpine_House%2C_Kew_Gardens%2C_2018_edit.jpg)
