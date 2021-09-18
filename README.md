@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/34/Alpine_House%2C_Kew_Gardens%2C_2018_edit.jpg/350px-Alpine_House%2C_Kew_Gardens%2C_2018_edit.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/Mohsen_Koochebaghi_Tabrizi_-_2010.JPG/350px-Mohsen_Koochebaghi_Tabrizi_-_2010.JPG)
