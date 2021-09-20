@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/18/The_Siege_of_Osaka_Castle.jpg/750px-The_Siege_of_Osaka_Castle.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/Poster_for_Le_pardon_de_Plo%C3%ABrmel_1859.jpg/350px-Poster_for_Le_pardon_de_Plo%C3%ABrmel_1859.jpg)
