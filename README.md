@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ec/Indian_rhinoceros_%28Rhinoceros_unicornis%29_4.jpg/350px-Indian_rhinoceros_%28Rhinoceros_unicornis%29_4.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Mrs._Lillian_Ascough%2C_chairman_of_the_Connecticut_branch_of_the_Woman%27s_Party.jpg/300px-Mrs._Lillian_Ascough%2C_chairman_of_the_Connecticut_branch_of_the_Woman%27s_Party.jpg)
