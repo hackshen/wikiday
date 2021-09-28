@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/22/Basilica_dei_Santi_Giovanni_e_Paolo_al_Celio_-_Interior.jpg/400px-Basilica_dei_Santi_Giovanni_e_Paolo_al_Celio_-_Interior.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Abfertigen_einer_Meldung_durch_Brieftauben_-_CH-BAR_-_3240471_-_restoration.jpg/300px-Abfertigen_einer_Meldung_durch_Brieftauben_-_CH-BAR_-_3240471_-_restoration.jpg)
