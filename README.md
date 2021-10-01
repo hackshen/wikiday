@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Parson%27s_chameleon_%28Calumma_parsonii_cristifer%29_female_Andasibe_2.jpg/400px-Parson%27s_chameleon_%28Calumma_parsonii_cristifer%29_female_Andasibe_2.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Georges_Ernest_Boulanger_by_Atelier_Nadar.jpg/300px-Georges_Ernest_Boulanger_by_Atelier_Nadar.jpg)
