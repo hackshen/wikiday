@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/Aegotheles_chrisoptus_-_Catlereigh_Nature_Reserve.jpg/350px-Aegotheles_chrisoptus_-_Catlereigh_Nature_Reserve.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg/300px-Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg)
