@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg/300px-Paul_von_Hindenburg_%281914%29_von_Nicola_Perscheid.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Black_skimmer_%28Rynchops_niger%29_in_flight.jpg/400px-Black_skimmer_%28Rynchops_niger%29_in_flight.jpg)
