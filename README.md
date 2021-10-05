@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Black_skimmer_%28Rynchops_niger%29_in_flight.jpg/400px-Black_skimmer_%28Rynchops_niger%29_in_flight.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2e/Yukon_Delta.jpg/350px-Yukon_Delta.jpg)
