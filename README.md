@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/Marsh_frog_%28Pelophylax_ridibundus%29.jpg/400px-Marsh_frog_%28Pelophylax_ridibundus%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg/350px-Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg)
