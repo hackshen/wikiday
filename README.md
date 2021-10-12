@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg/350px-Verdi_conducting_Aida_in_Paris_1880_-_Gallica_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b8/Apollo_10_Flown_Silver_Robbins_Medallion_%28SN-70%29.jpg/300px-Apollo_10_Flown_Silver_Robbins_Medallion_%28SN-70%29.jpg)
