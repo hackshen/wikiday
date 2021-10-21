@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ef/Red-billed_gull%2C_Red_Zone%2C_Christchurch%2C_New_Zealand.jpg/350px-Red-billed_gull%2C_Red_Zone%2C_Christchurch%2C_New_Zealand.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/German_New_Guinea_1895-A_20_Mark.jpg/400px-German_New_Guinea_1895-A_20_Mark.jpg)
