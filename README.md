@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/German_New_Guinea_1895-A_20_Mark.jpg/400px-German_New_Guinea_1895-A_20_Mark.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/MRNA_vaccines_against_the_coronavirus.webm/400px-seek%3D156-MRNA_vaccines_against_the_coronavirus.webm.jpg)
