@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/MRNA_vaccines_against_the_coronavirus.webm/400px-seek%3D156-MRNA_vaccines_against_the_coronavirus.webm.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/45/Rhacophorus_nigropalmatus.jpg/400px-Rhacophorus_nigropalmatus.jpg)
