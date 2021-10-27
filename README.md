@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/43/La_Juive_Act_1_set_1835_-_Restoration.jpg/400px-La_Juive_Act_1_set_1835_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Origma_solitaria_2_-_Wattamolla.jpg/350px-Origma_solitaria_2_-_Wattamolla.jpg)
