@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Origma_solitaria_2_-_Wattamolla.jpg/350px-Origma_solitaria_2_-_Wattamolla.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Vincent_van_Gogh_-_Enclosed_Field_with_Ploughman_-_Google_Art_Project.jpg/350px-Vincent_van_Gogh_-_Enclosed_Field_with_Ploughman_-_Google_Art_Project.jpg)
