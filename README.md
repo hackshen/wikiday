@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Vincent_van_Gogh_-_Enclosed_Field_with_Ploughman_-_Google_Art_Project.jpg/350px-Vincent_van_Gogh_-_Enclosed_Field_with_Ploughman_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg/350px-Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg)
