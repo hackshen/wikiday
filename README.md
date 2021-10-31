@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg/350px-Marsh_fritillaries_%28Euphydryas_aurinia%29_mating.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg/300px-BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg)
