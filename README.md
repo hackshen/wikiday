@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg/300px-BIBB%2C_George_M-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg/350px-Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg)
