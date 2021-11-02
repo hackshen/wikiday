@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/48/Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg/350px-Edison%27s_Greatest_Marvel-The_Vitascope_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg/500px-Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg)
