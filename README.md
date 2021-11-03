@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg/500px-Passiflora_caerulea_STEREO_%28R-L%29_2019-06-27.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/RICHARDSON%2C_William_A-Treasury_%28BEP_engraved_portrait%29.jpg/300px-RICHARDSON%2C_William_A-Treasury_%28BEP_engraved_portrait%29.jpg)
