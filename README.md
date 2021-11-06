@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Green-crowned_brilliant_%28Heliodoxa_jacula_henryi%29_female.jpg/380px-Green-crowned_brilliant_%28Heliodoxa_jacula_henryi%29_female.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Russian_chapel_at_Fort_Ross_%282016%29.jpg/400px-Russian_chapel_at_Fort_Ross_%282016%29.jpg)
