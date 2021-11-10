@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Hypomeces_squamosus.jpg/350px-Hypomeces_squamosus.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Fredrikke_M%C3%B8rck.jpg/250px-Fredrikke_M%C3%B8rck.jpg)
