@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Fredrikke_M%C3%B8rck.jpg/250px-Fredrikke_M%C3%B8rck.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg/350px-Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg)
