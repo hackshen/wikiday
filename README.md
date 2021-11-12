@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg/350px-Gauguin%2C_Paul_-_Landscape_near_Arles_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f4/Nelly_Martyl_by_Jean_Reutlinger_%28Image_10715%29.jpg/300px-Nelly_Martyl_by_Jean_Reutlinger_%28Image_10715%29.jpg)
