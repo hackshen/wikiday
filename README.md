@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1d/Admiral_John_Dahlgren_-_NARA_-_528718_edit.jpg/300px-Admiral_John_Dahlgren_-_NARA_-_528718_edit.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg/400px-Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg)
