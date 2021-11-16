@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg/400px-Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_3%2C_Scene_2_set.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Cheetah_%28Acinonyx_jubatus%29_cub.jpg/350px-Cheetah_%28Acinonyx_jubatus%29_cub.jpg)
