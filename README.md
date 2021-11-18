@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Cheetah_%28Acinonyx_jubatus%29_cub.jpg/350px-Cheetah_%28Acinonyx_jubatus%29_cub.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Braun%26Hogenberg_Trier_1572.jpg/350px-Braun%26Hogenberg_Trier_1572.jpg)
