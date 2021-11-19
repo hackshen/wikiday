@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Braun%26Hogenberg_Trier_1572.jpg/350px-Braun%26Hogenberg_Trier_1572.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Utah_Desert_Monolith.jpg/300px-Utah_Desert_Monolith.jpg)
