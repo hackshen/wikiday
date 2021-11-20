@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Utah_Desert_Monolith.jpg/300px-Utah_Desert_Monolith.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Alan_Bean_NASA_portrait_%28S69-38859%29.jpg/300px-Alan_Bean_NASA_portrait_%28S69-38859%29.jpg)
