@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/Alan_Bean_NASA_portrait_%28S69-38859%29.jpg/300px-Alan_Bean_NASA_portrait_%28S69-38859%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Arenaria_interpres_2_-_Boat_Harbour_%28cropped%29.jpg/350px-Arenaria_interpres_2_-_Boat_Harbour_%28cropped%29.jpg)
