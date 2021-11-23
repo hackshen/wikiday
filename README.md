@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/28/Interior_of_Sainte_Chapelle%2C_Vincennes_140308_1.jpg/400px-Interior_of_Sainte_Chapelle%2C_Vincennes_140308_1.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/10/Baby_Huwae%2C_c_1963%2C_Tati_Photo_Studio_2.jpg/300px-Baby_Huwae%2C_c_1963%2C_Tati_Photo_Studio_2.jpg)
