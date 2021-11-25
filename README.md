@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Five-striped_palm_squirrel_%28Funambulus_pennantii%29.jpg/300px-Five-striped_palm_squirrel_%28Funambulus_pennantii%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg/400px-Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg)
