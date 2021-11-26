@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg/400px-Princess_Sikhanyiso_Dlamini_of_Eswatini.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/60/US-Colonial_%28PA-149%29-Pennsylvania-20_Mar_1771_OBV.jpg/300px-US-Colonial_%28PA-149%29-Pennsylvania-20_Mar_1771_OBV.jpg)
