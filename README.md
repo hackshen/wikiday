@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Sidney_Hall_-_Urania%27s_Mirror_-_Lacerta%2C_Cygnus%2C_Lyra%2C_Vulpecula_and_Anser.jpg/500px-Sidney_Hall_-_Urania%27s_Mirror_-_Lacerta%2C_Cygnus%2C_Lyra%2C_Vulpecula_and_Anser.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Central_hidroel%C3%A9ctrica_de_Walchensee%2C_Kochel%2C_Baviera%2C_Alemania%2C_2014-03-22%2C_DD_04.JPG/350px-Central_hidroel%C3%A9ctrica_de_Walchensee%2C_Kochel%2C_Baviera%2C_Alemania%2C_2014-03-22%2C_DD_04.JPG)
