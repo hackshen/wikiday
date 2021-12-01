@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Central_hidroel%C3%A9ctrica_de_Walchensee%2C_Kochel%2C_Baviera%2C_Alemania%2C_2014-03-22%2C_DD_04.JPG/350px-Central_hidroel%C3%A9ctrica_de_Walchensee%2C_Kochel%2C_Baviera%2C_Alemania%2C_2014-03-22%2C_DD_04.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Henry_Taube_-_HD.3F.005_%2811086397086%29.jpg/350px-Henry_Taube_-_HD.3F.005_%2811086397086%29.jpg)
