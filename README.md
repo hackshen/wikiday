@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Diomedea_sanfordi_-_SE_Tasmania_2019.jpg/400px-Diomedea_sanfordi_-_SE_Tasmania_2019.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/300px-Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
