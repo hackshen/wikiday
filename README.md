@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/300px-Indiana_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/41/Russia_1771_Sestroretsk_Rouble.jpg/450px-Russia_1771_Sestroretsk_Rouble.jpg)
