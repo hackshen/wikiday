@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Oustalet%27s_chameleon_%28Furcifer_oustaleti%29_male_feeding_Anja_Community_Reserve_1e.jpg/319px-Oustalet%27s_chameleon_%28Furcifer_oustaleti%29_male_feeding_Anja_Community_Reserve_1e.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/GUTHRIE%2C_James-Treasury_%28BEP_engraved_portrait%29.jpg/300px-GUTHRIE%2C_James-Treasury_%28BEP_engraved_portrait%29.jpg)
