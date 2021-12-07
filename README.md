@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/GUTHRIE%2C_James-Treasury_%28BEP_engraved_portrait%29.jpg/300px-GUTHRIE%2C_James-Treasury_%28BEP_engraved_portrait%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/12/Poster_for_Quo_Vadis_%281913_silent_film%29.jpg/300px-Poster_for_Quo_Vadis_%281913_silent_film%29.jpg)
