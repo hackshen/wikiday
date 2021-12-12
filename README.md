@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/Programme_for_the_premi%C3%A8re_of_Ubu_Roi.jpg/350px-Programme_for_the_premi%C3%A8re_of_Ubu_Roi.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Eldridge_Street_Synagogue_%2842773%29.jpg/350px-Eldridge_Street_Synagogue_%2842773%29.jpg)
