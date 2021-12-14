@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Charadrius_obscurus_aquilonius_-_Point_Chevalier.jpg/350px-Charadrius_obscurus_aquilonius_-_Point_Chevalier.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/MJK_54041_Barocktr%C3%A4dg%C3%A5rden_%28Drottningholm%29.jpg/300px-MJK_54041_Barocktr%C3%A4dg%C3%A5rden_%28Drottningholm%29.jpg)
