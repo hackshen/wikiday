@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5b/Camp_-_Notes_on_Fashion_at_the_Met_-_Burberry_rainbow_cape_%2873854%29.jpg/300px-Camp_-_Notes_on_Fashion_at_the_Met_-_Burberry_rainbow_cape_%2873854%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/92/Kabukicho_red_gate_and_colorful_neon_street_signs_at_night%2C_Shinjuku%2C_Tokyo%2C_Japan.jpg/350px-Kabukicho_red_gate_and_colorful_neon_street_signs_at_night%2C_Shinjuku%2C_Tokyo%2C_Japan.jpg)
