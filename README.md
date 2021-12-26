@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/Julemotiv_tegnet_av_Jenny_Nystr%C3%B8m_%2824207693358%29.jpg/300px-Julemotiv_tegnet_av_Jenny_Nystr%C3%B8m_%2824207693358%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Fouquet_Madonna.jpg/350px-Fouquet_Madonna.jpg)
