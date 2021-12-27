@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Fouquet_Madonna.jpg/350px-Fouquet_Madonna.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/San_Stanislao_dei_Polacchi_%28Rome%29_-_Ceiling.jpg/250px-San_Stanislao_dei_Polacchi_%28Rome%29_-_Ceiling.jpg)
