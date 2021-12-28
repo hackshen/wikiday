@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/68/San_Stanislao_dei_Polacchi_%28Rome%29_-_Ceiling.jpg/250px-San_Stanislao_dei_Polacchi_%28Rome%29_-_Ceiling.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg/400px-South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg)
