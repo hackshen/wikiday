@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8c/South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg/400px-South-western_black_rhinoceros_%28Diceros_bicornis_occidentalis%29_female.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Phra_Phuttha_Chinnarat_%28II%29.jpg/400px-Phra_Phuttha_Chinnarat_%28II%29.jpg)
