@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Phra_Phuttha_Chinnarat_%28II%29.jpg/400px-Phra_Phuttha_Chinnarat_%28II%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Antoine_de_Favray_-_Portrait_of_Charles_Gravier_Count_of_Vergennes_and_French_Ambassador%2C_in_Turkish_Attire_-_Google_Art_Project.jpg/340px-Antoine_de_Favray_-_Portrait_of_Charles_Gravier_Count_of_Vergennes_and_French_Ambassador%2C_in_Turkish_Attire_-_Google_Art_Project.jpg)
