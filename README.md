@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/57/Euro_Construction.svg/400px-Euro_Construction.svg.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg/500px-Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg)
