@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg/500px-Thin_section_scan_crossed_polarizers_Siilinj%C3%A4rvi_R636-105.90.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/79/Geastrum_triplex_-_Bola_Creek.jpg/400px-Geastrum_triplex_-_Bola_Creek.jpg)
