@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/79/Geastrum_triplex_-_Bola_Creek.jpg/400px-Geastrum_triplex_-_Bola_Creek.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Italiaanse_schrijver_Umberto_Eco%2C_portret.jpg/300px-Italiaanse_schrijver_Umberto_Eco%2C_portret.jpg)
