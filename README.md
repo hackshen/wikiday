@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/70/Gliophorus_chromolimoneus_-_Ferndale_Park.jpg/300px-Gliophorus_chromolimoneus_-_Ferndale_Park.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-Illinois_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
