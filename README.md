@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg/400px-Museum_of_the_History_of_Polish_Jews_in_Warsaw_Main_exhibition_Gwo%C5%BAdziec_synagogue.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg/300px-Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)
