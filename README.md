@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg/300px-Carrie_Chapman_Catt_-_National_Woman%27s_Party_Records.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG/350px-Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG)
