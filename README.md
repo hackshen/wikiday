@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG/350px-Southern_rough-winged_swallow_%28Stelgidopteryx_ruficollis_ruficollis%29.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/Safety_Last_%281923%29.webm/500px-seek%3D3832-Safety_Last_%281923%29.webm.jpg)
