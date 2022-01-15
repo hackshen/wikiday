@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ac/Apis_mellifera_scutellata_1355021.jpg/300px-Apis_mellifera_scutellata_1355021.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4a/Messier_78.jpg/400px-Messier_78.jpg)
