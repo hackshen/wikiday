@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Haematopus_finschi_-_Point_Chevalier.jpg/400px-Haematopus_finschi_-_Point_Chevalier.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/90/Berlin_Hufeisensiedlung_UAV_04-2017.jpg/400px-Berlin_Hufeisensiedlung_UAV_04-2017.jpg)
