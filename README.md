@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/90/Berlin_Hufeisensiedlung_UAV_04-2017.jpg/400px-Berlin_Hufeisensiedlung_UAV_04-2017.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/96/US-NBN-HI-Honolulu-5550-1882BB-10-1-B.jpg/350px-US-NBN-HI-Honolulu-5550-1882BB-10-1-B.jpg)
