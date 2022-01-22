@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/96/US-NBN-HI-Honolulu-5550-1882BB-10-1-B.jpg/350px-US-NBN-HI-Honolulu-5550-1882BB-10-1-B.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg/500px-Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg)
