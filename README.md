@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f7/Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg/500px-Luigi_Verardi_after_Dominico_Ferri_-_Vincenzo_Bellini_-_Th%C3%A9atre_Royal_Italien._Salle_d%27armes_dans_l%27Op%C3%A9ra_I_Puritani.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg/350px-Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg)
