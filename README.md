@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg/350px-Two-tailed_pasha_%28Charaxes_jasius_jasius%29_Greece.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg/300px-%C3%89douard_Manet%2C_en_buste%2C_de_face_-_Nadar.jpg)
