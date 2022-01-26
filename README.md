@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/RUS-2016-Aerial-SPB-Winter_Palace_%28crop%29.jpg/500px-RUS-2016-Aerial-SPB-Winter_Palace_%28crop%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/The_Skating_Minister.jpg/350px-The_Skating_Minister.jpg)
