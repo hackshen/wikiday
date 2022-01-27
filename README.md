@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/75/The_Skating_Minister.jpg/350px-The_Skating_Minister.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/67/Australian_Brushturkey_2_-_Newington.jpg/350px-Australian_Brushturkey_2_-_Newington.jpg)
