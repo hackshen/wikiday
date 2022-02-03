@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/82/Valerie_L._Thomas_standing_with_a_stack_of_early_Landsat_Computer_Compatible_Tapes.jpg/300px-Valerie_L._Thomas_standing_with_a_stack_of_early_Landsat_Computer_Compatible_Tapes.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg/300px-Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg)
