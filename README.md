@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg/300px-Alice_Park_-_Records_of_the_National_Woman%27s_Party.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Melanodryas_cucullata_-_Glen_Davis.jpg/350px-Melanodryas_cucullata_-_Glen_Davis.jpg)
