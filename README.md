@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Melanodryas_cucullata_-_Glen_Davis.jpg/350px-Melanodryas_cucullata_-_Glen_Davis.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg/500px-Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg)
