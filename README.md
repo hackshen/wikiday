@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ed/Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg/500px-Heinrich_Berann_NPS_Panorama_of_Yosemite_without_labels.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Jabez_Hughes_after_Cundall_%26_Howlett_-_Heroes_of_the_Crimean_War_-_Sergeant_John_Geary%2C_Thomas_Onslow_and_Lance_Corporal_Patrick_Carthay_of_the_95th_%28Derbyshire%29_Regiment_of_Foot.jpg/400px-thumbnail.jpg)
