@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Rosy_ermine_moth_%28Trosia_nigropunctigera%29.jpg/400px-Rosy_ermine_moth_%28Trosia_nigropunctigera%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Ignace_Gaston_Pardies-Plate_3.jpg/500px-Ignace_Gaston_Pardies-Plate_3.jpg)
