@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Pierre-Auguste_Lamy_%28%3F%29_-_Les_contes_d%27Hoffmann_by_Jacques_Offenbach%2C_prologue.jpg/350px-Pierre-Auguste_Lamy_%28%3F%29_-_Les_contes_d%27Hoffmann_by_Jacques_Offenbach%2C_prologue.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/South_Africa_1874_One_Pond.jpg/400px-South_Africa_1874_One_Pond.jpg)
