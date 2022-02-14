@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3f/South_Africa_1874_One_Pond.jpg/400px-South_Africa_1874_One_Pond.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg/400px-Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg)
