@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg/400px-Connor_Barth_attempts_field_goal_8_November_2015_151108-F-ID984-017.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Oregon_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-Oregon_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
