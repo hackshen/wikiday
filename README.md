@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Oregon_state_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-Oregon_state_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/African_daisy_%28Osteospermum_sp._%27Pink_Whirls%27%29.jpg/400px-African_daisy_%28Osteospermum_sp._%27Pink_Whirls%27%29.jpg)
