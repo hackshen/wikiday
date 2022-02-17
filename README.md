@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/African_daisy_%28Osteospermum_sp._%27Pink_Whirls%27%29.jpg/400px-African_daisy_%28Osteospermum_sp._%27Pink_Whirls%27%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Il_signor_Tambourossini_-_Delaroche.jpg/400px-Il_signor_Tambourossini_-_Delaroche.jpg)
