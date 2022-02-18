@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/20/Il_signor_Tambourossini_-_Delaroche.jpg/400px-Il_signor_Tambourossini_-_Delaroche.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a7/Wells_Cathedral_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg/400px-Wells_Cathedral_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg)
