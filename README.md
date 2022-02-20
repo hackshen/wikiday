@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/33/Giraffa_camelopardalis_head_%28Profil%29.jpg/400px-Giraffa_camelopardalis_head_%28Profil%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f5/Django_Reinhardt_%28Gottlieb_07301%29.jpg/350px-Django_Reinhardt_%28Gottlieb_07301%29.jpg)
