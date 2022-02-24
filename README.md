@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/SARS-CoV-2_scanning_electron_microscope_image.jpg/400px-SARS-CoV-2_scanning_electron_microscope_image.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg/400px-Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg)
