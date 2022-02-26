@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b1/Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg/400px-Duke_Humfrey%27s_Library_Interior_5%2C_Bodleian_Library%2C_Oxford%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Christ%27s_Entry_into_Brussels_in_1889.jpg/500px-Christ%27s_Entry_into_Brussels_in_1889.jpg)
