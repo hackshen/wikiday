@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c0/Phyllidia_elegans_%2823806633304%29.jpg/350px-Phyllidia_elegans_%2823806633304%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Gemini_5_Elliot_See_water_egress_training.jpg/350px-Gemini_5_Elliot_See_water_egress_training.jpg)
