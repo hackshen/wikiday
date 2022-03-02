@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Gemini_5_Elliot_See_water_egress_training.jpg/350px-Gemini_5_Elliot_See_water_egress_training.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/NEWScotland-2016-Aerial-Blackness_Castle_01.jpg/400px-NEWScotland-2016-Aerial-Blackness_Castle_01.jpg)
