@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/NEWScotland-2016-Aerial-Blackness_Castle_01.jpg/400px-NEWScotland-2016-Aerial-Blackness_Castle_01.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Sesshu_-_Haboku-Sansui_-_complete.jpg/300px-Sesshu_-_Haboku-Sansui_-_complete.jpg)
