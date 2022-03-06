@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/18/Margaret_D._Foster%2C_in_Lab%2C_4_October_1919.jpg/400px-Margaret_D._Foster%2C_in_Lab%2C_4_October_1919.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Taeniopygia_bichenovii_2_-_Glen_Davis.jpg/350px-Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)
