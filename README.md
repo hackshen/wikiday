@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/56/Hudson_Yards_from_Hudson_Commons_%2895131p%29.jpg/399px-Hudson_Yards_from_Hudson_Commons_%2895131p%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/12/Marguerite_Durand_1910_-_Restoration.jpg/300px-Marguerite_Durand_1910_-_Restoration.jpg)
