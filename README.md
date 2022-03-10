@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/12/Marguerite_Durand_1910_-_Restoration.jpg/300px-Marguerite_Durand_1910_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Japanmakaken_im_Jigokudani_Monkey_Park_bei_der_Fellpflege.webm/400px--Japanmakaken_im_Jigokudani_Monkey_Park_bei_der_Fellpflege.webm.jpg)
