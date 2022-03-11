@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Japanmakaken_im_Jigokudani_Monkey_Park_bei_der_Fellpflege.webm/400px--Japanmakaken_im_Jigokudani_Monkey_Park_bei_der_Fellpflege.webm.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Lucy_Arbell_in_Massenet%27s_Th%C3%A9r%C3%A8se.jpg/350px-Lucy_Arbell_in_Massenet%27s_Th%C3%A9r%C3%A8se.jpg)
