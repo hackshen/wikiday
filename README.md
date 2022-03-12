@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c5/Lucy_Arbell_in_Massenet%27s_Th%C3%A9r%C3%A8se.jpg/350px-Lucy_Arbell_in_Massenet%27s_Th%C3%A9r%C3%A8se.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Rufous-collared_sparrow_%28Zonotrichia_capensis_costaricensis%29_2.jpg/400px-Rufous-collared_sparrow_%28Zonotrichia_capensis_costaricensis%29_2.jpg)
