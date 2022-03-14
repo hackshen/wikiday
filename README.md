@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c1/German_States_Fugger_1621_10_Ducats.jpg/400px-German_States_Fugger_1621_10_Ducats.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/40/Iris_Calderhead.jpg/300px-Iris_Calderhead.jpg)
