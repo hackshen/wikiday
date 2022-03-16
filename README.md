@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Haliotis_clathrata_01.JPG/400px-Haliotis_clathrata_01.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/50/Gateway_Generating_Station_rectified.jpg/600px-Gateway_Generating_Station_rectified.jpg)
