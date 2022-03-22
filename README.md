@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Nowruz_2017_in_Bisaran%2C_Kurdistan_province.jpg/500px-Nowruz_2017_in_Bisaran%2C_Kurdistan_province.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Gemsbok_%28Oryx_gazella%29_male.jpg/400px-Gemsbok_%28Oryx_gazella%29_male.jpg)
