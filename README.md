@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Gemsbok_%28Oryx_gazella%29_male.jpg/400px-Gemsbok_%28Oryx_gazella%29_male.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Ivan_Shishkin_-_%D0%A0%D0%BE%D0%B6%D1%8C_-_Google_Art_Project.jpg/399px-Ivan_Shishkin_-_%D0%A0%D0%BE%D0%B6%D1%8C_-_Google_Art_Project.jpg)
