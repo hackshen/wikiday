@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/16/Palace_of_Fine_Arts_%2816794p%29.jpg/500px-Palace_of_Fine_Arts_%2816794p%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Turdus_philomelos_-_Western_Springs_Lakeside_Park.jpg/400px-Turdus_philomelos_-_Western_Springs_Lakeside_Park.jpg)
