@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Vincent_van_Gogh_-_Wheatfield_under_thunderclouds_-_Google_Art_Project.jpg/500px-Vincent_van_Gogh_-_Wheatfield_under_thunderclouds_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Hayley_McFarland_cropped.jpg/300px-Hayley_McFarland_cropped.jpg)
