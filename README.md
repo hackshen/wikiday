@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Hayley_McFarland_cropped.jpg/300px-Hayley_McFarland_cropped.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Cathedral_Cove_06.jpg/350px-Cathedral_Cove_06.jpg)
