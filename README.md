@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Borbo_cinnara_%28Rice_swift%29_on_a_leaf.jpg/350px-Borbo_cinnara_%28Rice_swift%29_on_a_leaf.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Scotland-2016-West_Lothian-Hopetoun_House_02.jpg/500px-Scotland-2016-West_Lothian-Hopetoun_House_02.jpg)
