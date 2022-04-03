@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3d/Scotland-2016-West_Lothian-Hopetoun_House_02.jpg/500px-Scotland-2016-West_Lothian-Hopetoun_House_02.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6e/00065_sand_collage.jpg/400px-00065_sand_collage.jpg)
