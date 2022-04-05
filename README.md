@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/African_emerald_cuckoo_%28Chrysococcyx_cupreus%29_male.jpg/350px-African_emerald_cuckoo_%28Chrysococcyx_cupreus%29_male.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/SL_Colombo_asv2020-01_img10_National_Museum.jpg/400px-SL_Colombo_asv2020-01_img10_National_Museum.jpg)
