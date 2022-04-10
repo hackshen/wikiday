@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/85/Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg/300px-Oedipus_and_the_Sphinx_MET_DP-14201-023.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/Pigeon_Point_Lighthouse_%282016%29.jpg/400px-Pigeon_Point_Lighthouse_%282016%29.jpg)
