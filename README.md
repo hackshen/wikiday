@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/Pigeon_Point_Lighthouse_%282016%29.jpg/400px-Pigeon_Point_Lighthouse_%282016%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/Hubertine_Auclert_1910.jpg/350px-Hubertine_Auclert_1910.jpg)
