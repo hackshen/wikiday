@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2f/Northern-Lapwing-Vanellus-vanellus.jpg/400px-Northern-Lapwing-Vanellus-vanellus.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/ROM-70-Emergency_WWI-25_Bani_%281917%29.jpg/400px-ROM-70-Emergency_WWI-25_Bani_%281917%29.jpg)
