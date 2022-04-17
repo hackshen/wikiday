@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Christ_Falling_on_the_Way_to_Calvary_-_Raphael.jpg/350px-Christ_Falling_on_the_Way_to_Calvary_-_Raphael.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ab/Rich%C3%A8l_Hogenkamp_-_Masters_de_Madrid_2015_-_11.jpg/400px-Rich%C3%A8l_Hogenkamp_-_Masters_de_Madrid_2015_-_11.jpg)
