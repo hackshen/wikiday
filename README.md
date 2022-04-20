@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Post-and-Grant-Avenue-Look.jpg/400px-Post-and-Grant-Avenue-Look.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/49/Seaborg_in_lab_-_restoration.jpg/350px-Seaborg_in_lab_-_restoration.jpg)
