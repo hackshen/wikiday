@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Golden-eyed_tree_frog_%28Agalychnis_annae%29.jpg/400px-Golden-eyed_tree_frog_%28Agalychnis_annae%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Easter_breakfast_in_Serbia_%28close-up%29.jpg/400px-Easter_breakfast_in_Serbia_%28close-up%29.jpg)
