@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Easter_breakfast_in_Serbia_%28close-up%29.jpg/400px-Easter_breakfast_in_Serbia_%28close-up%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/89/St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg/400px-St_Lawrence_Jewry%2C_City_of_London%2C_UK_-_Diliff.jpg)
