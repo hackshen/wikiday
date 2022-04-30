@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Jasmin_Moghbeli_official_portrait.jpg/350px-Jasmin_Moghbeli_official_portrait.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Fluorescence_in_calcite.jpg/350px-Fluorescence_in_calcite.jpg)
