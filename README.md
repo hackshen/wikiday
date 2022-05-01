@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/39/Fluorescence_in_calcite.jpg/350px-Fluorescence_in_calcite.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d0/FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg/350px-FAIRCHILD%2C_Charles_S-Treasury_%28BEP_engraved_portrait%29.jpg)
