@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Naser_al-Din_Shah_Qajar%2C_close_up%2C_with_slight_smile_by_Nadar.jpg/350px-Naser_al-Din_Shah_Qajar%2C_close_up%2C_with_slight_smile_by_Nadar.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Khalili_Collection_Hajj_and_Arts_of_Pilgrimage_Talismanic_shirt.jpg/400px-Khalili_Collection_Hajj_and_Arts_of_Pilgrimage_Talismanic_shirt.jpg)
