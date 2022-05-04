@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ee/Khalili_Collection_Hajj_and_Arts_of_Pilgrimage_Talismanic_shirt.jpg/400px-Khalili_Collection_Hajj_and_Arts_of_Pilgrimage_Talismanic_shirt.jpg)
+![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
