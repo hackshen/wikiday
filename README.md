@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f6/Eastern_chanting_goshawk_%28Melierax_poliopterus%29.jpg/400px-Eastern_chanting_goshawk_%28Melierax_poliopterus%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bb/%D7%A2%D7%99%D7%A0%D7%AA_%D7%A7%D7%9C%D7%99%D7%A9-%D7%A8%D7%95%D7%AA%D7%9D.jpg/300px-%D7%A2%D7%99%D7%A0%D7%AA_%D7%A7%D7%9C%D7%99%D7%A9-%D7%A8%D7%95%D7%AA%D7%9D.jpg)
