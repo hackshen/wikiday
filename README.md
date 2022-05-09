@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Indian_tent_turtle_%28Pangshura_tentoria_tentoria%29.jpg/400px-Indian_tent_turtle_%28Pangshura_tentoria_tentoria%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/BEP-GIRSCH-DeSoto_Discovering_the_Mississippi_%28Powell%29.jpg/500px-BEP-GIRSCH-DeSoto_Discovering_the_Mississippi_%28Powell%29.jpg)
