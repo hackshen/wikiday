@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d1/Europe_in_1923.jpg/550px-Europe_in_1923.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg/350px-Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg)
