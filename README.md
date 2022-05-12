@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/eb/Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg/350px-Crab_spider_%28Misumena_Vatia%29_with_prey_silver-spotted_skipper_%28Hesperia_comma%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg/350px-Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg)
