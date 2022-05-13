@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg/350px-Hattie_Caraway_by_Harris_%26_Ewing%2C_1914.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Italian_States-Venice_%281779-89%29_50_Zecchini.jpg/500px-Italian_States-Venice_%281779-89%29_50_Zecchini.jpg)
