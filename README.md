@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Italian_States-Venice_%281779-89%29_50_Zecchini.jpg/500px-Italian_States-Venice_%281779-89%29_50_Zecchini.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Haematopus_unicolor_-_Point_Chevalier.jpg/400px-Haematopus_unicolor_-_Point_Chevalier.jpg)
