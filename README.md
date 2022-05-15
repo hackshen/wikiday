@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/76/Haematopus_unicolor_-_Point_Chevalier.jpg/400px-Haematopus_unicolor_-_Point_Chevalier.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3e/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_8.jpg/500px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_8.jpg)
