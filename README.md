@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3e/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_8.jpg/500px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_8.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Professeur_Metchnikoff%2C_portrait_du_scientifique_dans_un_laboratoire_de_recherche.jpg/400px-Professeur_Metchnikoff%2C_portrait_du_scientifique_dans_un_laboratoire_de_recherche.jpg)
