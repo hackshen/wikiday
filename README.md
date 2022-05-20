@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/Dr._Caroline_Spencer_275029v.jpg/350px-Dr._Caroline_Spencer_275029v.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5b/Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg/350px-Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg)
