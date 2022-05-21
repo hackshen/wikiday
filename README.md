@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5b/Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg/350px-Britain%27s_New_Spitfire_44-pf-116-2016-001-ac.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Amphiprion_perideraion_%28Pink_anemonefish%29_in_Heteractis_magnifica_%28Magnificent_sea_anemone%29.jpg/350px-Amphiprion_perideraion_%28Pink_anemonefish%29_in_Heteractis_magnifica_%28Magnificent_sea_anemone%29.jpg)
