@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/13/Amphiprion_perideraion_%28Pink_anemonefish%29_in_Heteractis_magnifica_%28Magnificent_sea_anemone%29.jpg/350px-Amphiprion_perideraion_%28Pink_anemonefish%29_in_Heteractis_magnifica_%28Magnificent_sea_anemone%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/63/Lucy_Arbell_as_Queen_Amahelli_in_Massenet%27s_Bacchus%2C_wide_view.jpg/350px-Lucy_Arbell_as_Queen_Amahelli_in_Massenet%27s_Bacchus%2C_wide_view.jpg)
