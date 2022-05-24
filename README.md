@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg/700px-Mars_topography_%28MOLA_dataset%29_with_poles_HiRes.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fb/Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg/350px-Acanthorhynchus_tenuirostris_-_Mogo_Campground.jpg)
