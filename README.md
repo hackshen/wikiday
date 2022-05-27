@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d2/Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG/350px-Santuario_de_Las_Lajas%2C_Ipiales%2C_Colombia%2C_2015-07-21%2C_DD_26-27_HDR.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Jukung_Pasar_Terapung.jpg/400px-Jukung_Pasar_Terapung.jpg)
