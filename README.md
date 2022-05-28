@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/Jukung_Pasar_Terapung.jpg/400px-Jukung_Pasar_Terapung.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Cyclemys_oldhamii.jpg/400px-Cyclemys_oldhamii.jpg)
