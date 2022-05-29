@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Cyclemys_oldhamii.jpg/400px-Cyclemys_oldhamii.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Self-portrait_by_Anna_Bili%C5%84ska-Bohdanowiczowa%2C_1887.jpg/300px-Self-portrait_by_Anna_Bili%C5%84ska-Bohdanowiczowa%2C_1887.jpg)
