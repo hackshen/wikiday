@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Self-portrait_by_Anna_Bili%C5%84ska-Bohdanowiczowa%2C_1887.jpg/300px-Self-portrait_by_Anna_Bili%C5%84ska-Bohdanowiczowa%2C_1887.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Xiahe_mandible.jpg/400px-Xiahe_mandible.jpg)
