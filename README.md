@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Xiahe_mandible.jpg/400px-Xiahe_mandible.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/44/Boats_on_Lake_Oroville_during_the_2021_drought.jpg/399px-Boats_on_Lake_Oroville_during_the_2021_drought.jpg)
