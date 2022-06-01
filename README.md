@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/44/Boats_on_Lake_Oroville_during_the_2021_drought.jpg/399px-Boats_on_Lake_Oroville_during_the_2021_drought.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/Cole_Thomas_The_Course_of_Empire_Desolation_1836.jpg/500px-Cole_Thomas_The_Course_of_Empire_Desolation_1836.jpg)
