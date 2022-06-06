@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0d/Baruch_Zvi_Ring_-_Memorial_Tablet_and_Omer_Calendar_-_Google_Art_Project.jpg/400px-Baruch_Zvi_Ring_-_Memorial_Tablet_and_Omer_Calendar_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg/350px-Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg)
