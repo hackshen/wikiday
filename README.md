@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6d/Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg/350px-Poster_for_Quo_Vadis_%281913_silent_film%29_-_Lygia_Bound_to_the_Wild_Bull.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg/500px-Monumento_a_Alfonso_XII_de_Espa%C3%B1a_en_los_Jardines_del_Retiro_-_04.jpg)
