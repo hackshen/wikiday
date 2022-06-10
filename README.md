@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b3/Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg/500px-Charles-Antoine_Cambon_-_Set_design_for_the_premi%C3%A8re_of_Rossini%27s_Robert_Bruce%2C_Act_III%2C_Scene_3.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg/400px-Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)
