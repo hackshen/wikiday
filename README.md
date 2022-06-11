@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4d/Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg/400px-Rembrandt_-_The_Anatomy_Lesson_of_Dr_Nicolaes_Tulp.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Sinopterus_dongi_NMNS.jpg/350px-Sinopterus_dongi_NMNS.jpg)
