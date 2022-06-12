@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Sinopterus_dongi_NMNS.jpg/350px-Sinopterus_dongi_NMNS.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Julia_Margaret_Cameron_MET_DP114480_-_Restoration.jpg/350px-Julia_Margaret_Cameron_MET_DP114480_-_Restoration.jpg)
