@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/Julia_Margaret_Cameron_MET_DP114480_-_Restoration.jpg/350px-Julia_Margaret_Cameron_MET_DP114480_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/12/Fl%C3%A8che_en_feu_-_Spire_on_Fire.jpeg/300px-Fl%C3%A8che_en_feu_-_Spire_on_Fire.jpeg)
