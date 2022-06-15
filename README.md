@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Danube_Delta_ESA23450088.jpeg/350px-Danube_Delta_ESA23450088.jpeg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/Checker_shadow_illusion.svg/350px-Checker_shadow_illusion.svg.png)
