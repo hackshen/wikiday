@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/be/Checker_shadow_illusion.svg/350px-Checker_shadow_illusion.svg.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/69/June_odd-eyed-cat_cropped.jpg/400px-June_odd-eyed-cat_cropped.jpg)
