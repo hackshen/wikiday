@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/69/June_odd-eyed-cat_cropped.jpg/400px-June_odd-eyed-cat_cropped.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Bolungarvik_Pano_from_Avalanche_Dam.jpg/750px-Bolungarvik_Pano_from_Avalanche_Dam.jpg)
