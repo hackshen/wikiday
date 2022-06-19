@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Bolungarvik_Pano_from_Avalanche_Dam.jpg/750px-Bolungarvik_Pano_from_Avalanche_Dam.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Sir_Arthur_Wellesley%2C_1st_Duke_of_Wellington.png/300px-Sir_Arthur_Wellesley%2C_1st_Duke_of_Wellington.png)
