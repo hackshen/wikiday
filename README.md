@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2a/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_6.jpg/300px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_6.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg/300px-Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg)
