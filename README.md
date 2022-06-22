@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c9/Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg/300px-Portrett_av_Gina_Krog_%286276081582%29_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/25/Indecency2.jpg/300px-Indecency2.jpg)
