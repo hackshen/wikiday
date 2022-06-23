@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/25/Indecency2.jpg/300px-Indecency2.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Wells_Cathedral_Arches%2C_Somerset%2C_UK_-_Diliff.jpg/400px-Wells_Cathedral_Arches%2C_Somerset%2C_UK_-_Diliff.jpg)
