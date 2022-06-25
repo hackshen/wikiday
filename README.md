@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/66/Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg/300px-Th%C3%A9ophile_Thor%C3%A9_by_Nadar.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg/400px-Vincent_van_Gogh_-_Wheatfield_with_a_reaper_-_Google_Art_Project.jpg)
