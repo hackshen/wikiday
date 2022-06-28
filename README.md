@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Stagonopleura_guttata_1_-_Glen_Alice.jpg/400px-Stagonopleura_guttata_1_-_Glen_Alice.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Mar%C3%A9chal_Canrobert_by_Nadar.jpg/300px-Mar%C3%A9chal_Canrobert_by_Nadar.jpg)
