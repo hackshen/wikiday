@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Mar%C3%A9chal_Canrobert_by_Nadar.jpg/300px-Mar%C3%A9chal_Canrobert_by_Nadar.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/US-%241-SC-1891-Fr.223.jpg/203px-US-%241-SC-1891-Fr.223.jpg)
