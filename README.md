@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/32/Ignace_Gaston_Pardies-Plate_4.jpg/500px-Ignace_Gaston_Pardies-Plate_4.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6f/Rhipidura_leucophrys_-_Glen_Davis.jpg/450px-Rhipidura_leucophrys_-_Glen_Davis.jpg)
