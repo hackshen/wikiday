@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/6a/Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg/350px-Hector_Berlioz%2C_Les_Troyens_vocal_score_cover_-_Restoration.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Ellis_Island_hospital_window_mural_%2801897%29.jpg/500px-Ellis_Island_hospital_window_mural_%2801897%29.jpg)
