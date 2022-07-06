@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bc/Ellis_Island_hospital_window_mural_%2801897%29.jpg/500px-Ellis_Island_hospital_window_mural_%2801897%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a7/Pseudatelus_sp..jpg/250px-Pseudatelus_sp..jpg)
