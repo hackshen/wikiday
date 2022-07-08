@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Scintillant_hummingbird_%28Selasphorus_scintilla%29_female_in_flight_1.jpg/500px-Scintillant_hummingbird_%28Selasphorus_scintilla%29_female_in_flight_1.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg/250px-Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg)
