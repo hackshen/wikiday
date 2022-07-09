@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8f/Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg/250px-Flora_MacDonald_Denison_-_Records_of_the_National_Woman%27s_Party.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/St_Cyprian%27s_Church_Nave%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg/450px-St_Cyprian%27s_Church_Nave%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg)
