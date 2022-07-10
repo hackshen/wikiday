@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cf/St_Cyprian%27s_Church_Nave%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg/450px-St_Cyprian%27s_Church_Nave%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Sesshu_-_Haboku-Sansui_-_complete.jpg/250px-Sesshu_-_Haboku-Sansui_-_complete.jpg)
