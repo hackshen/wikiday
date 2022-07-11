@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8b/Sesshu_-_Haboku-Sansui_-_complete.jpg/250px-Sesshu_-_Haboku-Sansui_-_complete.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7e/Sacred_ibis_%28Threskiornis_aethiopicus%29.jpg/350px-Sacred_ibis_%28Threskiornis_aethiopicus%29.jpg)
