@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Dom_St._Peter_und_Paul_%28Brandenburg_an_der_Havel%29_01_%28MK%29.jpg/400px-Dom_St._Peter_und_Paul_%28Brandenburg_an_der_Havel%29_01_%28MK%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Dorothy_Houston_Jacobson_1967_-_Crop.jpg/400px-Dorothy_Houston_Jacobson_1967_-_Crop.jpg)
