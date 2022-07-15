@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a2/Dorothy_Houston_Jacobson_1967_-_Crop.jpg/400px-Dorothy_Houston_Jacobson_1967_-_Crop.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Red_wattlebird.jpg/400px-Red_wattlebird.jpg)
