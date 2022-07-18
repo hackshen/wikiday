@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Joy_Young_Rogers_outside_the_White_House.jpg/450px-Joy_Young_Rogers_outside_the_White_House.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7a/Russian_Imperial_Family_1913.jpg/400px-Russian_Imperial_Family_1913.jpg)
