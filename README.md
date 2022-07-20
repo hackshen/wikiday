@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5a/Philemon_corniculatus_-_Glen_Davis.jpg/300px-Philemon_corniculatus_-_Glen_Davis.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg/350px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg)
