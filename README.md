@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg/350px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_7.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Lillian_Feickert_c._1912.jpg/350px-Lillian_Feickert_c._1912.jpg)
