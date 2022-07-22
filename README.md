@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a0/Lillian_Feickert_c._1912.jpg/350px-Lillian_Feickert_c._1912.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dc/Buzz_Aldrin.jpg/350px-Buzz_Aldrin.jpg)
