@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg/400px-Wells_Cathedral_Stairs_to_Chapter_House%2C_Somerset%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Argentina_1828_8_Escudos.jpg/500px-Argentina_1828_8_Escudos.jpg)
