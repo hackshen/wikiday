@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/81/Argentina_1828_8_Escudos.jpg/500px-Argentina_1828_8_Escudos.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Turgot_map_of_Paris%2C_general_map_-_Norman_B._Leventhal_Map_Center.jpg/625px-Turgot_map_of_Paris%2C_general_map_-_Norman_B._Leventhal_Map_Center.jpg)
