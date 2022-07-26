@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/55/Turgot_map_of_Paris%2C_general_map_-_Norman_B._Leventhal_Map_Center.jpg/625px-Turgot_map_of_Paris%2C_general_map_-_Norman_B._Leventhal_Map_Center.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Lion%27s_mane_jellyfish_in_Gullmarn_fjord_at_S%C3%A4mstad_8_-_edited.jpg/300px-Lion%27s_mane_jellyfish_in_Gullmarn_fjord_at_S%C3%A4mstad_8_-_edited.jpg)
