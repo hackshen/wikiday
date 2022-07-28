@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/Stagonopleura_guttata_2_-_Glen_Alice.jpg/400px-Stagonopleura_guttata_2_-_Glen_Alice.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0c/2018_FIM_Ice_Speedway_Gladiators_World_Championship_-_GP_7_Niedermaier-5563.jpg/400px-2018_FIM_Ice_Speedway_Gladiators_World_Championship_-_GP_7_Niedermaier-5563.jpg)
