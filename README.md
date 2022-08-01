@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Dean_Emma_M._Gillett_274015v.jpg/350px-Dean_Emma_M._Gillett_274015v.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a9/Ada_S._Flatman%2C_c._1917.jpg/350px-Ada_S._Flatman%2C_c._1917.jpg)
