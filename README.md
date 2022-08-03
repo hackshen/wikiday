@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Turnix_varius_-_Castlereigh_nature_reserve.jpg/450px-Turnix_varius_-_Castlereigh_nature_reserve.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg/350px-Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg)
