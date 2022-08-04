@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg/350px-Louis_D%C3%A9sir%C3%A9_Blanquart-Evrard_1869_photograph_BNF_Gallica.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/400px-Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
