@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/400px-Dakota_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Columba_leucomela_-_Brunkerville.jpg/450px-Columba_leucomela_-_Brunkerville.jpg)
