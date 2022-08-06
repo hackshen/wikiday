@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/84/Columba_leucomela_-_Brunkerville.jpg/450px-Columba_leucomela_-_Brunkerville.jpg)
+![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
