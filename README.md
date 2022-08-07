@@ -1,1 +1,1 @@
-![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Edith_Kermit_Carow_Roosevelt_by_Frances_Benjamin_Johnston.jpg/300px-Edith_Kermit_Carow_Roosevelt_by_Frances_Benjamin_Johnston.jpg)
