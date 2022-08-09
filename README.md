@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Edith_Kermit_Carow_Roosevelt_by_Frances_Benjamin_Johnston.jpg/300px-Edith_Kermit_Carow_Roosevelt_by_Frances_Benjamin_Johnston.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/St_Cyprian%27s_Church_Rood_Screen%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg/350px-St_Cyprian%27s_Church_Rood_Screen%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg)
