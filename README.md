@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/62/St_Cyprian%27s_Church_Rood_Screen%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg/350px-St_Cyprian%27s_Church_Rood_Screen%2C_Clarence_Gate%2C_London%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9f/Monarcha_melanopsis_1_-_Brunkerville.jpg/350px-Monarcha_melanopsis_1_-_Brunkerville.jpg)
