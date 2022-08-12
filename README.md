@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9f/Monarcha_melanopsis_1_-_Brunkerville.jpg/350px-Monarcha_melanopsis_1_-_Brunkerville.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/Heart_Mountain_Relocation_Center%2C_Heart_Mountain%2C_Wyoming._In_his_barracks_home_at_Block_7_-_21_-_NARA_-_539206_-_Restoration.jpg/400px-Heart_Mountain_Relocation_Center%2C_Heart_Mountain%2C_Wyoming._In_his_barracks_home_at_Block_7_-_21_-_NARA_-_539206_-_Restoration.jpg)
