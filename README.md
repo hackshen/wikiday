@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg/500px-Ortolan_bunting_in_Sierra_de_Guara%2C_Aragon%2C_Spain.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg/450px-Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg)
