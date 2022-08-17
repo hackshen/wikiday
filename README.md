@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b0/Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg/450px-Bengal_tiger_%28Panthera_tigris_tigris%29_female_3_crop.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Taeniopygia_bichenovii_2_-_Glen_Davis.jpg/450px-Taeniopygia_bichenovii_2_-_Glen_Davis.jpg)
