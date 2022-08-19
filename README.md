@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/7f/VST_image_of_the_spectacular_star-forming_region_Messier_17_%28Omega_Nebula%29.jpg/400px-VST_image_of_the_spectacular_star-forming_region_Messier_17_%28Omega_Nebula%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0e/Glyphoglossus_molossus%2C_Blunt-headed_burrowing_frog_-_Mueang_Loei_District%2C_Loei_Province_%2847097003944%29.jpg/400px-Glyphoglossus_molossus%2C_Blunt-headed_burrowing_frog_-_Mueang_Loei_District%2C_Loei_Province_%2847097003944%29.jpg)
