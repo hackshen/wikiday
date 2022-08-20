@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0e/Glyphoglossus_molossus%2C_Blunt-headed_burrowing_frog_-_Mueang_Loei_District%2C_Loei_Province_%2847097003944%29.jpg/400px-Glyphoglossus_molossus%2C_Blunt-headed_burrowing_frog_-_Mueang_Loei_District%2C_Loei_Province_%2847097003944%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_10.jpg/300px-Lewis_Carroll_-_Henry_Holiday_-_Hunting_of_the_Snark_-_Plate_10.jpg)
