@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg/450px-Jaguar_%28Panthera_onca_palustris%29_male_Three_Brothers_River_2.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e3/Argentina_1836_8_Escudos.jpg/500px-Argentina_1836_8_Escudos.jpg)
