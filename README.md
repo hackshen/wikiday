@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/Fabritius-vink.jpg/350px-Fabritius-vink.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Kobe_Bryant_7144_adjusted.jpg/300px-Kobe_Bryant_7144_adjusted.jpg)
