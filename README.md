@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4e/Kobe_Bryant_7144_adjusted.jpg/300px-Kobe_Bryant_7144_adjusted.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/0b/Citric_acid_cycle_with_aconitate_2.svg/550px-Citric_acid_cycle_with_aconitate_2.svg.png)
