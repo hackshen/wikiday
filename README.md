@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ce/Rhacophorus_kio.jpg/450px-Rhacophorus_kio.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/US-%241-TN-1891-Fr-351.jpg/212px-US-%241-TN-1891-Fr-351.jpg)
