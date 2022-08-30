@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1b/US-%241-TN-1891-Fr-351.jpg/212px-US-%241-TN-1891-Fr-351.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/33/Henrietta_Rodman_from_the_George_Grantham_Bain_Collection.jpg/500px-Henrietta_Rodman_from_the_George_Grantham_Bain_Collection.jpg)
