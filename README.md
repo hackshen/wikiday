@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Ignace_Gaston_Pardies-Plate_5.jpg/500px-Ignace_Gaston_Pardies-Plate_5.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
