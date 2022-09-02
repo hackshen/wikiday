@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/35/Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-Idaho_territory_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
