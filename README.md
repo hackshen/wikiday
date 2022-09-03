@@ -1,1 +1,1 @@
-![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg/400px-Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg)
