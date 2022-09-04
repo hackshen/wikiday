@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg/400px-Mamoru_Shigemitsu_signs_the_Instrument_of_Surrender%2C_officially_ending_the_Second_World_War.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg)
