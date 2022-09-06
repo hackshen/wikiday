@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg/350px-District_of_Columbia_coat_of_arms_%28illustrated%2C_1876%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Solvognen-00100.jpg/350px-Solvognen-00100.jpg)
