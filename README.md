@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Solvognen-00100.jpg/350px-Solvognen-00100.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/42/Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG/350px-Red-and-green_macaw_%28Ara_chloropterus%29_juvenile.JPG)
