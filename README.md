@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/ESTADOS_UNIDOS_LEVAM_OURO_NA_GIN%C3%81STICA_FEMININA_POR_EQUIPES_DOS_JOGOS_OL%C3%8DMPICOS_RIO_2016_%2828849586476%29_%28cropped%29.jpg/400px-ESTADOS_UNIDOS_LEVAM_OURO_NA_GIN%C3%81STICA_FEMININA_POR_EQUIPES_DOS_JOGOS_OL%C3%8DMPICOS_RIO_2016_%2828849586476%29_%28cropped%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg/400px-Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg)
