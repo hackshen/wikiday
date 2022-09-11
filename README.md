@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d8/Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg/400px-Theloderma_corticale_-_Karlsruhe_Zoo_01.jpg)
+![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
