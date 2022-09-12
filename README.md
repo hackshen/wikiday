@@ -1,1 +1,1 @@
-![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg/550px-Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg)
