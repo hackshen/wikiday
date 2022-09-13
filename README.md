@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg/550px-Lower_Manhattan_from_Governors_Island_August_2017_panorama.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg/400px-Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg)
