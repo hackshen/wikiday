@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg/400px-Spiny-cheeked_Honeyeater_3434_-_Patchewollock_Conservation_Reserve.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg/162px-POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg)
