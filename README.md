@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg/162px-POL-A1a-Bilet_Skarbowy-5_Zlotych_%281794_First_Issue%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/da/Ophrys_insectifera_-_Niitv%C3%A4lja2.jpg/300px-Ophrys_insectifera_-_Niitv%C3%A4lja2.jpg)
