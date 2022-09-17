@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f8/Northern_Gannet_with_nest_material.jpg/450px-Northern_Gannet_with_nest_material.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/CodexMendoza01.jpg/350px-CodexMendoza01.jpg)
