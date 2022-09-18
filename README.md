@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/aa/CodexMendoza01.jpg/350px-CodexMendoza01.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e6/IPA-euler-manners-features.svg/350px-IPA-euler-manners-features.svg.png)
