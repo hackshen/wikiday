@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/03/Trimeresurus_popeiorum%2C_Pope%27s_pit_viper_-_Doi_Phu_Kha_National_Park_%2846846412805%29.jpg/350px-Trimeresurus_popeiorum%2C_Pope%27s_pit_viper_-_Doi_Phu_Kha_National_Park_%2846846412805%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Hrh_Princess_Elizabeth_in_the_Auxiliary_Territorial_Service%2C_April_1945_TR2832.jpg/500px-Hrh_Princess_Elizabeth_in_the_Auxiliary_Territorial_Service%2C_April_1945_TR2832.jpg)
