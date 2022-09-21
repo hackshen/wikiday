@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/23/Hrh_Princess_Elizabeth_in_the_Auxiliary_Territorial_Service%2C_April_1945_TR2832.jpg/500px-Hrh_Princess_Elizabeth_in_the_Auxiliary_Territorial_Service%2C_April_1945_TR2832.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg/400px-Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg)
