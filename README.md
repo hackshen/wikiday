@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9c/Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg/400px-Lunch_atop_a_Skyscraper_-_Charles_Clyde_Ebbets.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg/450px-Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg)
