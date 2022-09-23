@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f3/Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg/450px-Pantala_flavescens_%28globe_skimmer%29_in_flight%2C_side_view.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg/450px-Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg)
