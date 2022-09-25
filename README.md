@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5c/Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg/450px-Lichfield_Cathedral_Choir_2%2C_Staffordshire%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/02/Brown-headed_Honeyeater_-_Patchewollock.jpg/400px-Brown-headed_Honeyeater_-_Patchewollock.jpg)
