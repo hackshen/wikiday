@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/02/Brown-headed_Honeyeater_-_Patchewollock.jpg/400px-Brown-headed_Honeyeater_-_Patchewollock.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg/300px-Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg)
