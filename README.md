@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg/300px-Annex_-_Stewart%2C_James_%28Call_Northside_777%29_01.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e1/Fire_dartfish_%28Nemateleotris_magnifica%29_%2843372442502%29.jpg/400px-Fire_dartfish_%28Nemateleotris_magnifica%29_%2843372442502%29.jpg)
