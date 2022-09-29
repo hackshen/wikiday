@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Double-crested_cormorant_at_Sutro_Baths-6460.jpg/450px-Double-crested_cormorant_at_Sutro_Baths-6460.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b5/US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg/207px-US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg)
