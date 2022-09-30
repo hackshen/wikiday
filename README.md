@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b5/US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg/207px-US-NBN-IL-Lebanon-2057-Orig-1-400-C.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg/350px-Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)
