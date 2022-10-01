@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg/350px-Aleksander_Gierymski_-_Jewish_woman_selling_oranges_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Ignace_Gaston_Pardies-Plate_6.jpg/500px-Ignace_Gaston_Pardies-Plate_6.jpg)
