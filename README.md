@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Ignace_Gaston_Pardies-Plate_6.jpg/500px-Ignace_Gaston_Pardies-Plate_6.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Episkopi_01-2017_img06_Kourion.jpg/450px-Episkopi_01-2017_img06_Kourion.jpg)
