@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1c/Episkopi_01-2017_img06_Kourion.jpg/450px-Episkopi_01-2017_img06_Kourion.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/58/Common_kingfisher_%28Alcedo_atthis_ispida%29_female.jpg/400px-Common_kingfisher_%28Alcedo_atthis_ispida%29_female.jpg)
