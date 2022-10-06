@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/46/Jean-Fran%C3%A7ois_Millet_by_Nadar%2C_Metropolitan_Museum_copy.jpg/300px-Jean-Fran%C3%A7ois_Millet_by_Nadar%2C_Metropolitan_Museum_copy.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/10/Trimeresurus_gumprechti%2C_Gumprecht%E2%80%99s_pit_viper_%28female%29_-_Phu_Suan_Sai_National_Park_%2846711073485%29.jpg/400px-Trimeresurus_gumprechti%2C_Gumprecht%E2%80%99s_pit_viper_%28female%29_-_Phu_Suan_Sai_National_Park_%2846711073485%29.jpg)
