@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/10/Trimeresurus_gumprechti%2C_Gumprecht%E2%80%99s_pit_viper_%28female%29_-_Phu_Suan_Sai_National_Park_%2846711073485%29.jpg/400px-Trimeresurus_gumprechti%2C_Gumprecht%E2%80%99s_pit_viper_%28female%29_-_Phu_Suan_Sai_National_Park_%2846711073485%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9a/Serge_Gainsbourg_par_Claude_Truong-Ngoc_1981.jpg/450px-Serge_Gainsbourg_par_Claude_Truong-Ngoc_1981.jpg)
