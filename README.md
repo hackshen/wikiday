@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4f/Rosy-faced_lovebird_%28Agapornis_roseicollis_roseicollis%29.jpg/300px-Rosy-faced_lovebird_%28Agapornis_roseicollis_roseicollis%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Chemerinsky_during_Hyatt_III_sketch.jpg/450px-Chemerinsky_during_Hyatt_III_sketch.jpg)
