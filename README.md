@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/04/Chemerinsky_during_Hyatt_III_sketch.jpg/450px-Chemerinsky_during_Hyatt_III_sketch.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a6/Eva_Le_Gallienne_%28mnwp.275003%2C_cropped_restoration%29.jpg/350px-Eva_Le_Gallienne_%28mnwp.275003%2C_cropped_restoration%29.jpg)
