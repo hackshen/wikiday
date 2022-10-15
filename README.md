@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2b/Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg/500px-Komodo_dragons_%28Varanus_komodoensis%29_fighting.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Eastern_Bristlebird_-_Penrith.jpg/450px-Eastern_Bristlebird_-_Penrith.jpg)
