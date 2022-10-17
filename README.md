@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/95/Eastern_Bristlebird_-_Penrith.jpg/450px-Eastern_Bristlebird_-_Penrith.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e8/David_Ben-Gurion_%28D597-087%29.jpg/300px-David_Ben-Gurion_%28D597-087%29.jpg)
