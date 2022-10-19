@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/Purple_roller_%28Coracias_naevius_mosambicus%29.jpg/300px-Purple_roller_%28Coracias_naevius_mosambicus%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/en/thumb/e/ec/Gobierno_de_Azerbaiy%C3%A1n%2C_Baku%2C_Azerbaiy%C3%A1n%2C_2016-09-26%2C_DD_27.jpg/550px-Gobierno_de_Azerbaiy%C3%A1n%2C_Baku%2C_Azerbaiy%C3%A1n%2C_2016-09-26%2C_DD_27.jpg)
