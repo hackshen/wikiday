@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e9/USPostRoadMap1804.jpg/550px-USPostRoadMap1804.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3b/Rose_Robin_1_-_Woodford.jpg/450px-Rose_Robin_1_-_Woodford.jpg)
