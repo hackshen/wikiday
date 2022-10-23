@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3b/Rose_Robin_1_-_Woodford.jpg/450px-Rose_Robin_1_-_Woodford.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Synthetic_Production_of_Penicillin_TR1468.jpg/350px-Synthetic_Production_of_Penicillin_TR1468.jpg)
