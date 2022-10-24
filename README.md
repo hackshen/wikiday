@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/bf/Synthetic_Production_of_Penicillin_TR1468.jpg/350px-Synthetic_Production_of_Penicillin_TR1468.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Lichfield_Cathedral_Nave_Columns%2C_Staffordshire%2C_UK_-_Diliff.jpg/350px-Lichfield_Cathedral_Nave_Columns%2C_Staffordshire%2C_UK_-_Diliff.jpg)
