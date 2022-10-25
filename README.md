@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/dd/Lichfield_Cathedral_Nave_Columns%2C_Staffordshire%2C_UK_-_Diliff.jpg/350px-Lichfield_Cathedral_Nave_Columns%2C_Staffordshire%2C_UK_-_Diliff.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Sociable_weaver_%28Philetairus_socius%29.jpg/350px-Sociable_weaver_%28Philetairus_socius%29.jpg)
