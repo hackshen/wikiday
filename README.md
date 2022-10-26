@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Sociable_weaver_%28Philetairus_socius%29.jpg/350px-Sociable_weaver_%28Philetairus_socius%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Old_Royal_Naval_College_2017-08-06.jpg/1024px-Old_Royal_Naval_College_2017-08-06.jpg)
