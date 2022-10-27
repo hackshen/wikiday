@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Old_Royal_Naval_College_2017-08-06.jpg/1024px-Old_Royal_Naval_College_2017-08-06.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg/350px-Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg)
