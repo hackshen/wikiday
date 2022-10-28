@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/fc/Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg/350px-Arthur_Kornberg_%2830828410210%29_-_restoration1.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/98/Buff-breasted_Paradise-Kingfisher_-_Julatten.jpg/350px-Buff-breasted_Paradise-Kingfisher_-_Julatten.jpg)
