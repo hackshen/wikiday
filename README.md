@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9b/US-%241-LT-1880-Fr-29.jpg/1px-US-%241-LT-1880-Fr-29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg/500px-Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg)
