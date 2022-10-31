@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cc/Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg/500px-Plexippus_petersi_%28jumping_spider%29_on_a_human_finger_at_golden_hour.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Trimeresurus_albolabris%2C_White-lipped_pit_viper_%28female%29_-_Kaeng_Krachan_National_Park_%2827493423545%29.jpg/450px-Trimeresurus_albolabris%2C_White-lipped_pit_viper_%28female%29_-_Kaeng_Krachan_National_Park_%2827493423545%29.jpg)
