@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/af/Khone_Phapheng_Falls%2C_Si_Phan_Don%2C_Laos%2C_widest_waterfall_in_the_world.jpg/550px-Khone_Phapheng_Falls%2C_Si_Phan_Don%2C_Laos%2C_widest_waterfall_in_the_world.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3a/Erizo_de_mar_viol%C3%A1ceo_%28Sphaerechinus_granularis%29%2C_Madeira%2C_Portugal%2C_2019-05-31%2C_DD_40.jpg/500px-Erizo_de_mar_viol%C3%A1ceo_%28Sphaerechinus_granularis%29%2C_Madeira%2C_Portugal%2C_2019-05-31%2C_DD_40.jpg)
