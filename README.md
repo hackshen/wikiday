@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/Pudong_Shanghai_November_2017_panorama.jpg/550px-Pudong_Shanghai_November_2017_panorama.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/Georges_Rochegrosse_-_Henry_F%C3%A9vrier_-_Henri_Cain_and_Louis_Payen_after_Victorien_Sardou_-_Gismonda.jpg/350px-Georges_Rochegrosse_-_Henry_F%C3%A9vrier_-_Henri_Cain_and_Louis_Payen_after_Victorien_Sardou_-_Gismonda.jpg)
