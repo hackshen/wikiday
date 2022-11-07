@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Bombing_of_Concordia_Vega_oil_refinery_in_Ploe%C8%99ti_by_USAAF_B-24s%2C_31_May_1944_%E2%80%94_restored.jpg/450px-Bombing_of_Concordia_Vega_oil_refinery_in_Ploe%C8%99ti_by_USAAF_B-24s%2C_31_May_1944_%E2%80%94_restored.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/Meyerbeer_-_Les_Huguenots_-_D%C3%A9cor_Acte_II.jpg/500px-Meyerbeer_-_Les_Huguenots_-_D%C3%A9cor_Acte_II.jpg)
