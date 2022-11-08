@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/Meyerbeer_-_Les_Huguenots_-_D%C3%A9cor_Acte_II.jpg/500px-Meyerbeer_-_Les_Huguenots_-_D%C3%A9cor_Acte_II.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/21/Jeannette_Rankin%2C_Bain_News_Service%2C_facing_front.jpg/350px-Jeannette_Rankin%2C_Bain_News_Service%2C_facing_front.jpg)
