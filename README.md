@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/21/Jeannette_Rankin%2C_Bain_News_Service%2C_facing_front.jpg/350px-Jeannette_Rankin%2C_Bain_News_Service%2C_facing_front.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/The_Great_Isaiah_Scroll_MS_A_%281QIsa%29_-_Google_Art_Project.jpg/5300px-The_Great_Isaiah_Scroll_MS_A_%281QIsa%29_-_Google_Art_Project.jpg)
