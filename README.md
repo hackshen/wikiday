@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/5e/The_Great_Isaiah_Scroll_MS_A_%281QIsa%29_-_Google_Art_Project.jpg/5300px-The_Great_Isaiah_Scroll_MS_A_%281QIsa%29_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Apollo_4_liftoff_-_GPN-2006-000038.jpg/250px-Apollo_4_liftoff_-_GPN-2006-000038.jpg)
