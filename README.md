@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/Apollo_4_liftoff_-_GPN-2006-000038.jpg/250px-Apollo_4_liftoff_-_GPN-2006-000038.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/en/thumb/9/94/Lawson_Wood_-_Parliamentary_Recruiting_Committee_-_Your_King_%26_Country_Need_You.jpg/350px-Lawson_Wood_-_Parliamentary_Recruiting_Committee_-_Your_King_%26_Country_Need_You.jpg)
