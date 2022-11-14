@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/f/f0/Mizrah_-_Israel_Dov_Rosenbaum.jpg/350px-Mizrah_-_Israel_Dov_Rosenbaum.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Xylotrupes_socrates_%28Siamese_rhinoceros_beetle%29.jpg/450px-Xylotrupes_socrates_%28Siamese_rhinoceros_beetle%29.jpg)
