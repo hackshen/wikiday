@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/38/Xylotrupes_socrates_%28Siamese_rhinoceros_beetle%29.jpg/450px-Xylotrupes_socrates_%28Siamese_rhinoceros_beetle%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_III%2C_Scene_1_set_design_%28Version_2%29.jpg/470px-Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_III%2C_Scene_1_set_design_%28Version_2%29.jpg)
