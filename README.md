@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d3/Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_III%2C_Scene_1_set_design_%28Version_2%29.jpg/470px-Charles-Antoine_Cambon_-_La_Esmeralda%2C_Act_III%2C_Scene_1_set_design_%28Version_2%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Stift_Wilhering_Kirche_Innenraum_01.jpg/350px-Stift_Wilhering_Kirche_Innenraum_01.jpg)
