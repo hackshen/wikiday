@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/99/Stift_Wilhering_Kirche_Innenraum_01.jpg/350px-Stift_Wilhering_Kirche_Innenraum_01.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg/350px-Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg)
