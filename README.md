@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/94/Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg/350px-Albert_Pierre-Ren%C3%A9_Maignan_-_Jules_Massenet_-_Ariane.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/83/Nina_Simone_1965_-_restoration1.jpg/350px-Nina_Simone_1965_-_restoration1.jpg)
