@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/Cuevas_de_H%C3%A9rcules%2C_Cabo_Espartel%2C_Marruecos%2C_2015-12-11%2C_DD_22-24_HDR.JPG/500px-Cuevas_de_H%C3%A9rcules%2C_Cabo_Espartel%2C_Marruecos%2C_2015-12-11%2C_DD_22-24_HDR.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Eurasian_coot_%28Fulica_atra%29_juvenile.jpg/450px-Eurasian_coot_%28Fulica_atra%29_juvenile.jpg)
