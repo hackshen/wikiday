@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ad/Eurasian_coot_%28Fulica_atra%29_juvenile.jpg/450px-Eurasian_coot_%28Fulica_atra%29_juvenile.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b9/Yawning_Infant%2C_August_2018.jpg/400px-Yawning_Infant%2C_August_2018.jpg)
