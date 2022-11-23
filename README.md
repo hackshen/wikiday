@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cd/Hortus_Haren_18-05-2019._%28actm.%29_03.jpg/450px-Hortus_Haren_18-05-2019._%28actm.%29_03.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d2/Autor_nieznany%2C_%C5%9Bw._Anna_-_fragment_postaci._Malowid%C5%82o_%C5%9Bcienne.jpg/400px-Autor_nieznany%2C_%C5%9Bw._Anna_-_fragment_postaci._Malowid%C5%82o_%C5%9Bcienne.jpg)
