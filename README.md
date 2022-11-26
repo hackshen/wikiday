@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8a/Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg/350px-Male_wild_turkey_%28Meleagris_gallopavo%29_strutting.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg/300px-Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg)
