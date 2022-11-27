@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg/300px-Mademoiselle_Maupin_de_l%27Op%C3%A9ra_%28Julie_d%27Aubigny%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/The_Mahasattva_of_Truc_Lam_leaves_the_Mountain_%E7%AB%B9%E6%9E%97%E5%A4%A7%E5%A3%AB%E5%87%BA%E5%B1%B1%E5%9C%96.jpg/3500px-The_Mahasattva_of_Truc_Lam_leaves_the_Mountain_%E7%AB%B9%E6%9E%97%E5%A4%A7%E5%A3%AB%E5%87%BA%E5%B1%B1%E5%9C%96.jpg)
