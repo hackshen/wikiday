@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/The_Mahasattva_of_Truc_Lam_leaves_the_Mountain_%E7%AB%B9%E6%9E%97%E5%A4%A7%E5%A3%AB%E5%87%BA%E5%B1%B1%E5%9C%96.jpg/3500px-The_Mahasattva_of_Truc_Lam_leaves_the_Mountain_%E7%AB%B9%E6%9E%97%E5%A4%A7%E5%A3%AB%E5%87%BA%E5%B1%B1%E5%9C%96.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/6/64/SUD-S102a-Siege_of_Khartoum-5_Piastres_%281884%29.jpg/1px-SUD-S102a-Siege_of_Khartoum-5_Piastres_%281884%29.jpg)
