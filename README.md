@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2c/GER-COL-S-1451-Prussia-Siege_of_Kolberg-2_groschen-1807.jpg/215px-GER-COL-S-1451-Prussia-Siege_of_Kolberg-2_groschen-1807.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c7/Pygocentrus_nattereri_-_Karlsruhe_Zoo_01.jpg/450px-Pygocentrus_nattereri_-_Karlsruhe_Zoo_01.jpg)
