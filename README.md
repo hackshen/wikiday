@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/26/Hazel_MacKaye_and_dog_by_Harris_%26_Ewing.jpg/300px-Hazel_MacKaye_and_dog_by_Harris_%26_Ewing.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/William_Utermohlen_-_1967_self_portrait_mixed_media_on_paper.jpg/300px-William_Utermohlen_-_1967_self_portrait_mixed_media_on_paper.jpg)
