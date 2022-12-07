@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/df/William_Utermohlen_-_1967_self_portrait_mixed_media_on_paper.jpg/300px-William_Utermohlen_-_1967_self_portrait_mixed_media_on_paper.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg/500px-Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg)
