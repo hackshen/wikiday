@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg/500px-Marabou_stork_%28Leptoptilos_crumenifer%29_head.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/ea/LET_L-410NG_OK-NGA_ILA_Berlin_2016_09.jpg/500px-LET_L-410NG_OK-NGA_ILA_Berlin_2016_09.jpg)
