@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/2/2a/William_Bouguereau_-_Dante_and_Virgile_-_Google_Art_Project.jpg/300px-William_Bouguereau_-_Dante_and_Virgile_-_Google_Art_Project.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Lilac-breasted_roller_%28Coracias_caudatus_caudatus%29_Botswana.jpg/450px-Lilac-breasted_roller_%28Coracias_caudatus_caudatus%29_Botswana.jpg)
