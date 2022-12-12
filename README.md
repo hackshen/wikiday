@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/06/Lilac-breasted_roller_%28Coracias_caudatus_caudatus%29_Botswana.jpg/450px-Lilac-breasted_roller_%28Coracias_caudatus_caudatus%29_Botswana.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Mossy_leaf-tailed_gecko_%28Uroplatus_sikorae%29_Montagne_d%E2%80%99Ambre_2.jpg/350px-Mossy_leaf-tailed_gecko_%28Uroplatus_sikorae%29_Montagne_d%E2%80%99Ambre_2.jpg)
