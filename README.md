@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/3/3c/Elizabeth_Glendower_Evans_%28cropped%29.jpg/300px-Elizabeth_Glendower_Evans_%28cropped%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Ksiaz_-_zamek_01.jpg/450px-Ksiaz_-_zamek_01.jpg)
