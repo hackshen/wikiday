@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e0/Ksiaz_-_zamek_01.jpg/450px-Ksiaz_-_zamek_01.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Pittsburgh_skyline_panorama_at_night.jpg/1005px-Pittsburgh_skyline_panorama_at_night.jpg)
