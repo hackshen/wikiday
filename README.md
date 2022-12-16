@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b6/Pittsburgh_skyline_panorama_at_night.jpg/1005px-Pittsburgh_skyline_panorama_at_night.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg/350px-Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg)
