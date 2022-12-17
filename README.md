@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/47/Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg/350px-Beulah_Ream_Allen_receiving_the_Medal_of_Freedom_%281945%29.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b5/Staring_Down_Hurricane_Florence.jpg/500px-Staring_Down_Hurricane_Florence.jpg)
