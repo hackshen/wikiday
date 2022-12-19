@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a1/Buddy_Hield.jpg/350px-Buddy_Hield.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Underwater_slope_in_Gullmarn_fjord_2.jpg/400px-Underwater_slope_in_Gullmarn_fjord_2.jpg)
