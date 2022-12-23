@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d6/Midvinterblot_%28Carl_Larsson%29_-_Nationalmuseum_-_edited.jpg/600px-Midvinterblot_%28Carl_Larsson%29_-_Nationalmuseum_-_edited.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/1e/Giacomo_Puccini_%281924%29_-_Archivio_Storico_Ricordi_FOTO003293_-_Restoration.jpg/350px-Giacomo_Puccini_%281924%29_-_Archivio_Storico_Ricordi_FOTO003293_-_Restoration.jpg)
