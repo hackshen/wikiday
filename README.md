@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/78/US-%241-LT-1862-Fr-16c.jpg/203px-US-%241-LT-1862-Fr-16c.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Emu_1_-_Tidbinbilla.jpg/400px-Emu_1_-_Tidbinbilla.jpg)
