@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/9/9d/Emu_1_-_Tidbinbilla.jpg/400px-Emu_1_-_Tidbinbilla.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg/400px-Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg)
