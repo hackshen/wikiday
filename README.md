@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg/400px-Entrance_Hall_of_Mr_Chas._Green%27s_house%2C_Savannah_Ga%2C_now_occupied_as_Head_Quarters_by_Gen_Sherman.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d5/Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png/250px-Survey_of_Palestine_1942-1958_1-100%2C000_sheet_index_georef.png)
