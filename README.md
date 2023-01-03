@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/ae/Schloss_Favorite_Ludwigsburg_2017_01.jpg/600px-Schloss_Favorite_Ludwigsburg_2017_01.jpg)
+![Le Juif polonais](https:/static/images/footer/wikimedia-button.png)
