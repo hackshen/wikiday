@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/0/03/Lucretia_Mott%2C_signed_photo%2C_by_F._Gutekunst.jpg/350px-Lucretia_Mott%2C_signed_photo%2C_by_F._Gutekunst.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/2017.08.06.-04-Kirschgartshaeuser_Schlaege_Mannheim--Weidenjungfer-Maennchen.jpg/350px-2017.08.06.-04-Kirschgartshaeuser_Schlaege_Mannheim--Weidenjungfer-Maennchen.jpg)
