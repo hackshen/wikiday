@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/74/Line_scan_photo_of_nine_car_BART_C1_train_in_2017.jpg/6000px-Line_scan_photo_of_nine_car_BART_C1_train_in_2017.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Harris_%26_Ewing_-_Helena_Hill_Weed.jpg/300px-Harris_%26_Ewing_-_Helena_Hill_Weed.jpg)
