@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a5/Harris_%26_Ewing_-_Helena_Hill_Weed.jpg/300px-Harris_%26_Ewing_-_Helena_Hill_Weed.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Elephant_Trunk.png/400px-Elephant_Trunk.png)
