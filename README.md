@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Elephant_Trunk.png/400px-Elephant_Trunk.png)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Campo_flicker_%28Colaptes_campestris%29_female.JPG/300px-Campo_flicker_%28Colaptes_campestris%29_female.JPG)
