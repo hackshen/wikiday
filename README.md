@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/4/4b/Campo_flicker_%28Colaptes_campestris%29_female.JPG/300px-Campo_flicker_%28Colaptes_campestris%29_female.JPG)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/7/77/%22Capt._Della_H._Raney%2C_Army_Nurse_Corps%2C_who_now_heads_the_nursing_staff_at_the_station_hospital_at_Camp_Beale%2C_CA_-_NARA_-_535942.jpg/400px-%22Capt._Della_H._Raney%2C_Army_Nurse_Corps%2C_who_now_heads_the_nursing_staff_at_the_station_hospital_at_Camp_Beale%2C_CA_-_NARA_-_535942.jpg)
