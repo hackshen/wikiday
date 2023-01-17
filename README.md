@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/c/c6/Tonga_Volcano_Eruption_2022-01-15_0320Z_to_0610Z_Himawari-8_visible.gif/400px-Tonga_Volcano_Eruption_2022-01-15_0320Z_to_0610Z_Himawari-8_visible.gif)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg/350px-Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg)
