@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d9/Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg/350px-Macracantha_arcuata_-_Curved_Spiny_Spider_%288550192839%29_by_Rushen_edit.jpg)
+![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/Kanayi_Kunhiraman_Image.jpg/400px-Kanayi_Kunhiraman_Image.jpg)
