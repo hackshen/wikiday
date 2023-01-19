@@ -1,1 +1,1 @@
-![Le Juif polonais](https://upload.wikimedia.org/wikipedia/commons/thumb/a/a3/Kanayi_Kunhiraman_Image.jpg/400px-Kanayi_Kunhiraman_Image.jpg)
+![Le Juif polonais](https:/static/images/icons/wikipedia.png)
