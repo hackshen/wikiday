@@ -1,1 +1,1 @@
-![Le Juif polonais](https:/static/images/icons/wikipedia.png)
+![Le Juif polonais](https:undefined)
