@@ -17,7 +17,7 @@ https.get(URL, function (res) {
         // const imgUrl = $('.mw-file-description').find('img')[0].src;
         const { images } = JSON.parse(html || null);
         const [{ url }={}] = images;
-        const imgUrl = `https://www.bing.com${url}`;
+        const imgUrl = `//www.bing.com${url}`;
         console.log(imgUrl);
         fs.writeFile('./README.md', `![Le Juif polonais](https:${imgUrl})`, e => {
 
